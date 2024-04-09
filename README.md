@@ -1,1 +1,1 @@
-# StudyNotion-by-Lgeitbunny
+# StudyNotion-by-Legitbunny
