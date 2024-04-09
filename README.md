@@ -1,1 +1,1 @@
-# Mega-StudyNotion
+# StudyNotion-by-Lgeitbunny
